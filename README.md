@@ -1,3 +1,3 @@
-RUINING EVERYTIHNG
+the worst readme file ever
 
 
